@@ -1,0 +1,4 @@
+- Hallo mijn naam is Pablo-09
+- Ik ben op het moment bezig met mijn eigen Roleplay server.
+- De naam van de server is LeeuwardenRP 
+- Ben jij geintreseerd? Neem dan een kijkje
